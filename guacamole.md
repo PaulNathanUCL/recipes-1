@@ -2,7 +2,7 @@
 
 ## Ingredients
 
-- avocado
+- avocado and barbecue sauce
 - lime
 - salt
 
